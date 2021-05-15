@@ -1,6 +1,6 @@
 ## Filler Website (but epic)
 
-Learn more about this [totally secret](https://github.com/74bobux/74bobux.github.io/edit/main/index.md) project!
+Learn more about this [totally secret](https://www.youtube.com/watch?v=waMK1DCjMfs) project!
 
 are .md files for the rest of the website?
 
@@ -10,7 +10,7 @@ be me
 
 too bad you are not
 
-the [the](https://www.youtube.com/watch?v=MnjQsmGJ0TY).
+the [the](https://www.youtube.com/watch?v=waMK1DCjMfs).
 
 ### epic code
 
